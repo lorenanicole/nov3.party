@@ -19,4 +19,4 @@ So when one prepares for the "Prez" to go away ... what do you do? Do you:
 - Make a thirst trap so inticing that we all can't help ourselves
 <br>
 <br>
-What do you do? I want to know. Please share, and let's keep the momemtum going. November 3 2020 *MUST* be a party, regardless of the outcome. 
+What do you do? I want to know. Please share, and let's keep the momemtum going. November 3 2020 *MUST* be a party, regardless of the outcome. So, share [here](https://forms.gle/nmrnEkRxkv5DpryQ9).

@@ -6,4 +6,4 @@ permalink: /share-nov3-party-plans
 
 # Share your November 3 2020 plans
 
-Here's the form => go for it!
+Here's the form => [go for it](https://forms.gle/nmrnEkRxkv5DpryQ9)!
